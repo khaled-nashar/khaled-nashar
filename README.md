@@ -22,6 +22,7 @@
 - Currently learning Web Development by Self
 - Personal website [link](https://www.0xabdulkhalid.ml)
 - I’m currently open for an Intern or a new job opportunity, this is [my resume](https://read.cv/0xabdulkhalid)
+- i work in computer center
 
 <br><br>
 
